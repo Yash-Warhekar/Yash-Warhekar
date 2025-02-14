@@ -2,7 +2,7 @@
 - 👀 I’m interested in  Everything in Tech
 - 🌱 I’m currently learning Web dev
 - 💞️ I’m looking to collaborate on 
-- 📫 How to reach me @linkedin.in/yash-warhekar
+- 📫 How to reach me www.linkedin.com/in/yashwarhekar
 - 😄 call me @yash
 
 
